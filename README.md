@@ -1,4 +1,4 @@
-# **UpSkill Vision – Learning & Development Platform** 🎓💡  
+# **UpSkill Vision – Learning & Development Platform* 🎓💡  
 
 <br>
 
